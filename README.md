@@ -17,18 +17,34 @@
 * [9 Tools Every Designer Needs in Their Toolkit](https://readus247.com/9-tools-every-designer-needs-in-their-toolkit/)
 * [6 Tools That Help Small Businesses To Succeed](https://readus247.com/6-tools-that-help-small-businesses-to-succeed/)
 * [Top 8 Best Website Speed Test Tools in 2022](https://readus247.com/best-website-speed-test-tools/)
+* [Best Android App Development Software](https://readus247.com/best-android-app-development-software/)
+* [Download Logitech Unifying Software Windows](https://readus247.com/logitech-unifying-software-windows/)
+* [Best VPN Service of 2022](https://readus247.com/best-vpn/)
 
 
-### [HowTo Guide] - [Informations]
+### [HowTo Guide/Informations]
 
-*[]()
-*[]()
-*[]()
-*[]()
-*[]()
-*[]()
-*[]()
-
+* [How to Backup Photos on iPhone](https://readus247.com/how-to-backup-photos-on-iphone/)
+* [Best Z-Library Alternatives](https://readus247.com/z-library/)
+* [Most Unbiased News Sources On The Internet](https://readus247.com/most-unbiased-news-publishers/)
+* [What Does com.Facebook.katana Mean](https://readus247.com/what-does-com-facebook-katana-mean-should-i-remove-it/)
+* [DNS Probe Finished No Internet Error In Google Chrome](https://readus247.com/fix-dns-probe-finished-no-internet/)
+* [Why Do Some URLs End in HTML](https://readus247.com/why-do-some-urls-end-in-html/)
+* [Advantages and Disadvantages of a Wide Area Network](https://readus247.com/advantages-and-disadvantages-of-a-wide-area-network/)
+* [How to Charge a Smartwatch](https://readus247.com/how-to-charge-a-smartwatch/)
+* [Minecraft Realms Server Error 500](https://readus247.com/fix-minecraft-realms-server-error-500/)
+* [LG TV Black Screen of Death](https://readus247.com/lg-tv-black-screen-of-death/)
+* [Facetime Tap To Join Green](https://readus247.com/facetime-tap-to-join-green/)
+* [LOOT Not Detecting Skyrim and Skyrim SE](https://readus247.com/loot-not-detecting-skyrim/)
+* [Now.gg Roblox Login](https://readus247.com/now-gg-roblox-login/)
+* [Best Cursive Fonts In Microsoft Word](https://readus247.com/best-cursive-fonts-in-microsoft-word/)
+* [How to Backup Your iPhone](https://readus247.com/how-to-backup-your-iphone/)
+* [5xx Server Error On Instagram](https://readus247.com/5xx-server-error-on-instagram/)
+* [Discord Can’t Unmute Issue](https://readus247.com/fix-discord-cant-unmute/)
+* [How to Unsync Two iPhones](https://readus247.com/how-to-unsync-two-iphones/)
+* [How to Delete Your Google and Gmail Account](https://readus247.com/how-to-delete-your-google-and-gmail-account/)
+* [How to Create a Strong & Unique Password](https://readus247.com/how-to-create-a-strong-unique-password/)
+* 
 
 
 
